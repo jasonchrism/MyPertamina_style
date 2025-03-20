@@ -1,2 +1,2 @@
 ﻿# MyPertamina
-![20250314_181154_453](https://github.com/user-attachments/assets/443e8a66-521b-4b5d-b185-8715b141a98c)
+![1 Front Cover](https://github.com/user-attachments/assets/91ccd167-f700-4e8e-be12-aae5fb0a05cf)
